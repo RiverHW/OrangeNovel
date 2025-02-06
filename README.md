@@ -6,6 +6,6 @@ The most significant advantage of the Orange Novel APP lies in its convenience. 
 
 If you have any questions, please contact us
 
-Technical support email ：orange82934@gmail
+Technical support email ：[orange82934@gmail]
 
 Contact number ： +852-98459504
